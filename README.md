@@ -1,0 +1,2 @@
+# Chris-B
+Chris B Christopher Anthony Berry (Born May 27, 1988) known as his stage name Chris B is an American rapper and songwriter from Lake Elsinore, California. and has been doing music since (feb 28, 2000) he has released five albums back to back,he worked with Strange Music, to which other similar rappers are also signed to. He is known for having one of the most popular and different styles in the industry. Chris B was published in hop hop weekly magazine july,18,2016 with his huge hit only human featuring Krizz Kaliko from Strange music.
